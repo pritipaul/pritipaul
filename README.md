@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m Currently Preparing For Placements In IT Companies, And Also Preparing For Competitive Exams And Self Development Skills.<br>🌱 I’m currently Exploring My Web Development Skills And Learning Data Structures And Algorithms...<br>🤔 Working At Techno International New Town As B.Tech Computer Science And Engineering Student Presently.<br>💬 Ask Me About Web Development Issues If Occurs & Exciting Projects Related To Web Development, Python, And Java To Work On.<br>📫 How To Reach Me:<br>LinkedIn: https://www.linkedin.com/in/priti-paul-3aa930200/<br>😄 Pronouns: She/Her
+🔭 I’m Currently Preparing For Placements In IT Companies, And Also Preparing For Competitive Exams And Self Development Skills.<br>🌱 I’m currently Exploring My Web Development Skills And Learning Data Structures And Algorithms...<br>🤔 Working At Techno International New Town As B.Tech Computer Science And Engineering Student Presently.<br>💬 Ask Me About Web Development Issues If Occurs & Exciting Projects Related To Web Development, Python, And Java To Work On.<br>📫 How To Reach Me:<br>LinkedIn: [https://www.linkedin.com/in/priti-paul-3aa930200/](https://www.linkedin.com/in/priti-paul-3aa930200/)<br>😄 Pronouns: She/Her
 
 
 ## 🌐 Socials:
